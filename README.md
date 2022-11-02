@@ -1,2 +1,2 @@
 # chikakembar
-Chika Sayangku
+kembar
